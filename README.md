@@ -110,8 +110,8 @@ Relevant Coursework:
 ## Contact
 
 Email: nehabbh0708@gmail.com  
-LinkedIn: YOUR_LINK  
-GitHub: YOUR_GITHUB  
+LinkedIn: www.linkedin.com/in/neha-bhatt-22236531a
+
 
 ---
 
